@@ -10,7 +10,7 @@
 ## 🕹️ 去哪找乐子的
 
 - **⛏️ Minecraft（一只鸽子在地图上乱飞说是）**
-- **🔥🧊 A Dance Of Fire And Ice (砸键盘0/1)
+- **🔥🧊 A Dance Of Fire And Ice (砸键盘0/1)**
 - **🔫 Counter-Strike 2 (又菜又爱玩的沙包)**
   
 ## 想揍本鸽子？
