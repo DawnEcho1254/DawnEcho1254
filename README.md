@@ -12,7 +12,7 @@
 ## 想揍咱喵？
 
 📬**q215514933446&#64;126.com**  
-🐧**[2155251493](https://qm.qq.com/q/xC1YnDbL4k)**(个人资料瞎填的啦)
+🐧**[2155251493](https://qm.qq.com/q/xC1YnDbL4k)**
 
 ## 其他
 [个人站喵](https://dawnecho1254.github.io/)
