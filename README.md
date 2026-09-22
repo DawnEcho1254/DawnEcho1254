@@ -7,21 +7,17 @@
 
 - **⛏️ Minecraft（小猫坐在了你的箱子上.jpg）**
 - **🔥🧊 A Dance Of Fire And Ice (砸键盘0/1)**
-- **🔫 Counter-Strike 2 (又菜又爱玩的沙包)**
+- **🔫 Counter-Strike 2 (沙包)**
   
 ## 想揍咱喵？
 
 📬**q215514933446&#64;126.com**  
-🐧**[2155251493](https://qm.qq.com/q/xC1YnDbL4k)**
+🐧** [2155251493](https://qm.qq.com/q/xC1YnDbL4k) **
 
 ## 其他
 [个人站喵](https://dawnecho1254.github.io/)
 
 ## 杂谈喵
-
-~~“就算只是条鸽子，也要在自己的鸽子窝里拉坨大的！”~~
-
-**“鸽子不止会咕咕，它还会扑腾自己的翅膀”**
 
 **喵喵喵喵喵喵喵喵喵喵喵喵**
 
